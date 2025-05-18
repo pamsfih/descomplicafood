@@ -12,8 +12,8 @@ A intolerância ao glúten e à lactose pode transformar a alimentação em um c
 
 **Entendendo o essencial:**
 
-   Glúten e lactose em detalhe:** descomplicamos os conceitos de glúten e lactose, explicando de forma clara onde eles se escondem e por que merecem nossa atenção.
-   Sintomas: Um Sinal de Alerta:** apresentamos os sintomas mais comuns de intolerância, com um aviso importante: DescomplicaFood é um guia informativo, não um médico.
+   Glúten e lactose em detalhe: descomplicamos os conceitos de glúten e lactose, explicando de forma clara onde eles se escondem e por que merecem nossa atenção.
+   Sintomas: apresentamos os sintomas mais comuns de intolerância, com um aviso importante: DescomplicaFood é um guia informativo, não um médico.
 
 **Decifrando o rótulo dos alimentos:**
 
