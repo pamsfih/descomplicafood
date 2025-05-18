@@ -12,21 +12,21 @@ A intolerância ao glúten e à lactose pode transformar a alimentação em um c
 
 **Entendendo o essencial:**
 
-    * **Glúten e lactose em detalhe:** descomplicamos os conceitos de glúten e lactose, explicando de forma clara onde eles se escondem e por que merecem nossa atenção.
-    * **Sintomas: Um Sinal de Alerta:** apresentamos os sintomas mais comuns de intolerância, com um aviso importante: DescomplicaFood é um guia informativo, não um médico.
+    **Glúten e lactose em detalhe:** descomplicamos os conceitos de glúten e lactose, explicando de forma clara onde eles se escondem e por que merecem nossa atenção.
+    **Sintomas: Um Sinal de Alerta:** apresentamos os sintomas mais comuns de intolerância, com um aviso importante: DescomplicaFood é um guia informativo, não um médico.
 
 **Decifrando o rótulo dos alimentos:**
 
-    * **Rótulos: ensinamos a ler rótulos como verdadeiros detetives, identificando os ingredientes que podem causar problemas.
+    **Rótulos: ensinamos a ler rótulos como verdadeiros detetives, identificando os ingredientes que podem causar problemas.
 
 **Um mundo de possibilidades:**
 
-    * **Substituições: apresentamos alternativas deliciosas e nutritivas para substituir alimentos com glúten e lactose, mostrando que a restrição também pode ser uma aventura culinária.
+    **Substituições: apresentamos alternativas deliciosas e nutritivas para substituir alimentos com glúten e lactose, mostrando que a restrição também pode ser uma aventura culinária.
 
 **Comendo fora com confiança:**
 
-    * **Perguntas inteligentes: Fornecemos um arsenal de perguntas para fazer em restaurantes, garantindo que você coma com segurança e tranquilidade.
-    * **Opções seguras: sugerimos pratos que geralmente são mais amigáveis para quem tem restrições, mas sempre com o conselho de confirmar os ingredientes.
+    **Perguntas inteligentes: Fornecemos um arsenal de perguntas para fazer em restaurantes, garantindo que você coma com segurança e tranquilidade.
+    **Opções seguras: sugerimos pratos que geralmente são mais amigáveis para quem tem restrições, mas sempre com o conselho de confirmar os ingredientes.
 
 ##   O que DescomplicaFood te oferece:
 
