@@ -1,4 +1,4 @@
-# DescomplicaFood: seu companheiro inteligente na jornada alimentar sem Glúten e lactose 🥛
+# DescomplicaFood: seu companheiro inteligente na jornada alimentar sem glúten e lactose 🥛
 
 ##   Desvendando o universo da alimentação restritiva com IA
 
