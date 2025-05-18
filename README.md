@@ -33,7 +33,7 @@ A intolerância ao glúten e à lactose pode transformar a alimentação em um c
 * **Clareza:** informações diretas e fáceis de entender, sem rodeios.
 * **Empoderamento:** ferramentas para você se sentir no controle da sua alimentação.
 * **Leveza:** abordagem positiva e encorajadora, mostrando que a restrição não precisa ser um fardo.
-* **Praticidade:** Dicas que funcionam no mundo real, adaptadas ao seu dia a dia.
+* **Praticidade:** dicas que funcionam no mundo real, adaptadas ao seu dia a dia.
 
 ##   Aproveite a vida da melhor maneira!
 
