@@ -25,8 +25,8 @@ A intolerância ao glúten e à lactose pode transformar a alimentação em um c
 
 **Comendo fora com confiança:**
 
-   Perguntas inteligentes: fornecemos um arsenal de perguntas para fazer em restaurantes, garantindo que você coma com segurança e tranquilidade.
-   Opções seguras: sugerimos pratos que geralmente são mais amigáveis para quem tem restrições, mas sempre com o conselho de confirmar os ingredientes.
+   * Perguntas inteligentes: fornecemos um arsenal de perguntas para fazer em restaurantes, garantindo que você coma com segurança e tranquilidade.
+   * Opções seguras: sugerimos pratos que geralmente são mais amigáveis para quem tem restrições, mas sempre com o conselho de confirmar os ingredientes.
 
 ##   O que DescomplicaFood te oferece:
 
